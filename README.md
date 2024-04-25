@@ -59,7 +59,3 @@ Abitur (High School Diploma) (Jun 2012)
 - Promoted an inclusive learning space that respected diversity among students.
 - Established and maintained open communication with parents to ensure a collaborative approach to learning.
 - Assessed each child's developmental needs on ongoing basis.
- 
-
-
-https://www.youtube.com/watch?v=D9CLhQdLp8w
