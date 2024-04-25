@@ -7,7 +7,7 @@
   
 #### Soft Skills: 
 - Multicultural Communication & Interpersonal Skills
-- Adaptibility & 
+- Adaptibility & Flexibility
 - Problem-Solving & Analytical Thinking
 
 #### Languages: 
@@ -59,18 +59,7 @@ Abitur (High School Diploma) (Jun 2012)
 - Promoted an inclusive learning space that respected diversity among students.
 - Established and maintained open communication with parents to ensure a collaborative approach to learning.
 - Assessed each child's developmental needs on ongoing basis.
-
-## Certifications
-
-### Python
-Bilder
-Projekte
-
-### SQL
-Bilder
-Projekte
-
-### 
+ 
 
 
 https://www.youtube.com/watch?v=D9CLhQdLp8w
